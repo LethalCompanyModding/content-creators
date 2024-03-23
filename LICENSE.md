@@ -1,0 +1,1 @@
+Except where stated otherwise all content within this repository is considered all rights reserved by its specific copyright holder.
